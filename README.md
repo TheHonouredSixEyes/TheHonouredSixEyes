@@ -4,4 +4,4 @@
              “ My one and only. ”
 
 
-[.Strawpage](
+[Click to view Straw.](https://hallucinatedworld.straw.page)
