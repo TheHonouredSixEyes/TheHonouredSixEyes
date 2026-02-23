@@ -2,5 +2,5 @@
 
 
 
-   [<img width="1200" height="1200" alt="Untitled255_20260224002924" src="https://github.com/user-attachments/assets/518a5c53-94a1-441f-b8da-fdc49b4d6c23" />
+   [<img width="1200" height="1200" alt="Untitled255_20260224003019" src="https://github.com/user-attachments/assets/9ba05661-47a0-4729-a1ad-39ab688c0394" />
 ](https://hallucinatedworld.straw.page)
