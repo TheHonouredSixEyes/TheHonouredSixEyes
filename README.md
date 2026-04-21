@@ -2,9 +2,10 @@
             
             
 
-<img width="843" height="508" alt="Untitled324_20260421142541" src="https://github.com/user-attachments/assets/ad62fbec-4efd-4f63-bc00-7050072e9c91" />
+<img width="2360" height="231" alt="Untitled330_20260421143811" src="https://github.com/user-attachments/assets/2f6f0e6a-8aad-41b3-8751-cfb8685173a4" />
 <img width="843" height="508" alt="IMG_1979" src="https://github.com/user-attachments/assets/37107658-158b-4ed7-a25b-519e5a56eaee" />
-<img width="843" height="508" alt="Untitled324_20260421142551" src="https://github.com/user-attachments/assets/b555c0e4-61d8-4752-934a-c01f9c9b0f34" />
+<img width="2360" height="231" alt="Untitled330_20260421143820" src="https://github.com/user-attachments/assets/347d0bb8-38c2-4dc4-84e8-6d6c60d59ae9" />
+
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎AC : @/calclzz on twt
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀[__Straw.__](https://hallucinatedworld.straw.page)‎‎  ‎ ꒱‎‎  ‎    DNC my skins pls ^^
