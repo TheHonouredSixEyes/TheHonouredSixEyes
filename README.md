@@ -1,5 +1,5 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ *Proshipper (specifically Darkshipper),
-Homophobes,Transphobes, epstein jokes maker, trump supporters,
+Homophobes,Transphobes, epstein jokes maker, trump supporters, problematic behaviours(which i will not list but use your common sense.),
 or generally those who associated with any of said list i will ask kindly do not interact nor befriend.*
 
 
