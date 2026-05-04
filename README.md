@@ -1,4 +1,4 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ *Proshipper (specifically Darkshipper), Homophobes,Transphobes, epstein jokes maker, trump supporters, problematic ‎‎‎behaviours(which i will not list, i'm sure you know what.),‎or those who associated with any of said list i highly **do not** encouraged befriending or interact. please respect my desicions as i will not hestitate to cut contact or block if i found out.*
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ *Proshipper (specifically Darkshipper), Homophobes,Transphobes, epstein jokes maker, trump supporters, problematic ‎‎‎behaviours(which i will not list, i'm sure you know what.),‎or those who associate with people any of said list i highly **do not** encouraged befriending or interact. please respect my desicions as i will not hestitate to cut contact or block if i found out.*
 
 
 
